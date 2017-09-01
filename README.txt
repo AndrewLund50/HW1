@@ -1,1 +1,0 @@
-My favorite baseball team is the Twins.
